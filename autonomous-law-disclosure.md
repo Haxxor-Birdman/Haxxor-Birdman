@@ -4,7 +4,7 @@ Last Updated: 7/7/21
 
 ***DISCLAIMERS FOLLOW: Please review and be advised of the following:*** 
 
-In meatspace, I am a lawyer admitted to practice in multiple states and federal jurisdictions in the United States. Here, I am an anon crypto-lawyer (that may or may not practice "autonomous lawyering" in a variety of settings) with a bird-man-hero-lawyer moniker. To the extent that does not dissuade you from relying upon what I have to say, below are some disclaimers that more fully set things out.
+In meatspace, I am a lawyer admitted to practice in multiple states and federal jurisdictions in the United States. Here, I am an anon crypto-lawyer (that may or may not practice "autonomous lawyering" in a variety of settings) with a bird-man-hero-lawyer moniker. To the extent that does not dissuade you from relying upon what I have to say, below are some disclaimers that more fully sets things out.
 
 **DISCLAIMER OF ATTORNEY – CLIENT RELATIONSHIP**
 
